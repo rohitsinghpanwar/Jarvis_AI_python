@@ -1,2 +1,2 @@
 # Jarvis_AI_python
-i am rosip
+people know me both as rosip and  rohit
